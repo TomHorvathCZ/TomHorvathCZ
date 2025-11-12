@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @TomHorvathCZ
 - 👀 I’m interested in everything what change the world
 - 🌱 I’m currently learning to not sleep every 4 hours
-- 💞️ I’m looking to collaborate on love
 - 📫 How to reach me IG, SC.
